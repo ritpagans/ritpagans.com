@@ -12,3 +12,9 @@ There are as many flavors of paganism as there are pagans. It's up to you to exp
 Student-run meetings are on Mondays from 6 to 7 in the basement (Skalny room, under the chapel)
 
 Formal rituals are when they are, typically from 5:30 to 7:30 and also in the basement.
+
+# Schedule
+
+- November 25th - Student Meeting
+- December 2nd - Student Meeting
+- December 5th - Krampus Ritual - open to guests
