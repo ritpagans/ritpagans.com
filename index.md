@@ -5,16 +5,38 @@ title: Home
 
 # It's like build-a-bear
 
-There are as many flavors of paganism as there are pagans. It's up to you to explore and discover. We'll help you learn more.
+Everyone follows their own path. You might choose to follow an established tradition, or you might choose to create something that is uniquely yours.
 
-# Gatherings
+We are *all* beginners, and we know it's not easy to just stroll in. We  try to be as beginner friendly and welcoming as we can. Come say hi!
 
-Student-run meetings are on Mondays from 6 to 7 in the basement (Skalny room, under the chapel)
+# Rituals
 
-Formal rituals are when they are, typically from 5:30 to 7:30 and also in the basement.
+Rituals are typically lead by the one-and-only RIT pagan chaplain [Rauncie Ryan]().
 
-# Schedule
+Rituals are on Mondays in the Skalny Room (under the interfaith center) and run from 6 to 8PM. We recommend arriving early.
 
-- November 25th - Student Meeting
-- December 2nd - Student Meeting
-- December 5th - Krampus Ritual - open to guests
+- Jan 20 - Welcome Back Ritual
+- Feb 03 - Imbolc
+- Feb 10 - Full Ice Moon
+- Apr 06 - Full Moon
+- Apr 27 - Beltane and Graduation
+
+# Student group meetings
+
+Student group meetings are on Mondays from 6 to 7, also in the Skalny room. We'll hang out, and learn about the week's topic.
+
+- Jan 27 - Introduction to Paganism
+- Feb 17 - Ritual Design and Tools
+- Feb 24 - Astrology
+- Mar 02 - Runes
+- Mar 16 - Norse Paganism
+- Mar 23 - TBA
+- Mar 30 - TBA
+- Apr 13 - TBA
+- Apr 20 - TBA
+
+Current ideas that could fill those TBA slots:
+
+- Crystals
+- Knots
+- Tarot cards
