@@ -35,16 +35,10 @@ Rituals are on Mondays in the Skalny Room (under the interfaith center) and run 
 
 Student group meetings are on Mondays from 6 to 7, also in the Skalny room. We'll hang out, and learn about the week's topic.
 
-
-- Mar 02 - yeet yeet
-- Mar 16 -
-- Mar 23 - TBA
-- Mar 30 - TBA
-- Apr 13 - TBA
-- Apr 20 - TBA
-
-Current ideas that could fill those TBA slots:
-
-- Crystals
-- Knots
-- Tarot cards
+- Mar 02 - Coloring and Intro to Heathenry
+- Mar 16 - Runes!
+- Mar 23 - Meditation; guided and walking
+- Mar 30 - Special event! (ride signup todo)
+- Apr 13 - Knots and knotwork and drawing knots and tying knots
+- Apr 20 - Tarot - our most requested topic
+- May 04 - Hanging out, coloring? De-stress from finals
