@@ -11,34 +11,22 @@ We are *all* beginners, and we know it's not easy to just stroll in. We  try to 
 
 # Next Events
 
-The next student group meeting is **Coloring and Intro to Heathenry**.
+The next student group meeting is **Tarot Art!**
 
-*6PM, Monday March 2nd, Skalny room.*
+*October 26th, 5pm, on Zoom.*
 
-The next ritual is **Ostara**.
+[This is the magic zoom meeting invite link. Click this!](https://rit.zoom.us/w/95413970668?tk=fcQcvyJLu98okS0NmhnSP0gjds9EpYZ9IJNLtRZheo4.DQIAAAAWNx2m7BZ4ZUZfUlpva1FEeVY5Y2tseTRQYUt3AAAAAAAAAAAAAAAAAAAAAAAAAAAA&pwd=eTJML2RKVWVMZXhQd0t4ak5UOGpUUT09)
 
-*6PM, Friday March 20th, Skalny room.*
+The next ritual is **Samhain**.
+
+*I'm not sure where or when, but we'll update this, we promise :)*
 
 # Rituals
 
-Rituals are typically lead by the one-and-only RIT pagan chaplain [Rauncie Ryan](https://www.rit.edu/directory/lrrgla-rauncie-ryan).
-
-Rituals are on Mondays in the Skalny Room (under the interfaith center) and run from 6 to 8PM. We recommend arriving early.
-
-- Friday, March 20th - Ostara (Spring Equinox)
-- Thursday, April 2nd - 1 year and 1 day celebration
-- Monday, April 6th - Full Moon
-- Monday, April 27th - Beltane and Graduation ceremonies
-- Thursday, May 7th - Full Moon
+I'll update this soon lol. There's some cool stuff going down on Halloween, but idk the details just yet.
 
 # Student group meetings
 
-Student group meetings are on Mondays from 6 to 7, also in the Skalny room. We'll hang out, and learn about the week's topic.
+Student group meetings are on Mondays from 5 to 6. They're on Zoom. Swing by!
 
-- Mar 02 - Coloring and Intro to Heathenry
-- Mar 16 - Runes!
-- Mar 23 - Meditation; guided and walking
-- Mar 30 - Special event! (ride signup todo)
-- Apr 13 - Knots and knotwork and drawing knots and tying knots
-- Apr 20 - Tarot - our most requested topic
-- May 04 - Hanging out, coloring? De-stress from finals
+[This is the same zoom link, again, for your convenience. Click this!](https://rit.zoom.us/w/95413970668?tk=fcQcvyJLu98okS0NmhnSP0gjds9EpYZ9IJNLtRZheo4.DQIAAAAWNx2m7BZ4ZUZfUlpva1FEeVY5Y2tseTRQYUt3AAAAAAAAAAAAAAAAAAAAAAAAAAAA&pwd=eTJML2RKVWVMZXhQd0t4ak5UOGpUUT09)

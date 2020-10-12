@@ -2,6 +2,7 @@
 $lato: 'Lato', sans-serif;
 $dance: 'Dancing Script', cursive;
 $slab: 'Roboto Slab', serif;
+$cursive: 'Sansita Swashed', cursive;
 
 $c_purple: rgba(78, 2, 80, 1);
 $c_egreen: rgba(8, 76, 97, 1);
@@ -137,6 +138,7 @@ footer{
 	a{
 		text-decoration: none;
 		color: white;
+		font-family: $lato;
 		&:hover{
 			text-decoration: underline;
 		}
