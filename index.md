@@ -7,26 +7,20 @@ title: Home
 
 Everyone follows their own path. You might choose to follow an established tradition, or you might choose to create something that is uniquely yours.
 
-We are *all* beginners, and we know it's not easy to just stroll in. We  try to be as beginner friendly and welcoming as we can. Come say hi!
+We are *all* beginners, and we know it's not easy to just stroll in. Don't worry - we are a remarkably welcoming group. Come say hi!
 
-# Next Events
+# Spring of 2021
 
-The next student group meeting is **Tarot Art!**
+Welcome to the spring semester of 2021. The skies are gray, and zoom is still our primary method of meeting. Nevertheless, the Pagan club continues! We have meetings, rituals, and new this semester - *seminars* planned.
 
-*October 26th, 5pm, on Zoom.*
+**Meetings** are held on most weeks. There will be a topic and/or activity.
 
-[This is the magic zoom meeting invite link. Click this!](https://rit.zoom.us/w/95413970668?tk=fcQcvyJLu98okS0NmhnSP0gjds9EpYZ9IJNLtRZheo4.DQIAAAAWNx2m7BZ4ZUZfUlpva1FEeVY5Y2tseTRQYUt3AAAAAAAAAAAAAAAAAAAAAAAAAAAA&pwd=eTJML2RKVWVMZXhQd0t4ak5UOGpUUT09)
+**Rituals** are held according to the [wheel of the year](https://en.wikipedia.org/wiki/Wheel_of_the_Year), and also some full (or new!) moons.
 
-The next ritual is **Samhain**.
+**Seminars** are deep learning dives into a specific topic. They can take the place of normal meetings, or sometimes stand alone.
 
-*I'm not sure where or when, but we'll update this, we promise :)*
+Newcomers are always welcome at our events (though we encourage reaching out before attending a ritual).
 
-# Rituals
+# Schedule
 
-I'll update this soon lol. There's some cool stuff going down on Halloween, but idk the details just yet.
-
-# Student group meetings
-
-Student group meetings are on Mondays from 5 to 6. They're on Zoom. Swing by!
-
-[This is the same zoom link, again, for your convenience. Click this!](https://rit.zoom.us/w/95413970668?tk=fcQcvyJLu98okS0NmhnSP0gjds9EpYZ9IJNLtRZheo4.DQIAAAAWNx2m7BZ4ZUZfUlpva1FEeVY5Y2tseTRQYUt3AAAAAAAAAAAAAAAAAAAAAAAAAAAA&pwd=eTJML2RKVWVMZXhQd0t4ak5UOGpUUT09)
+The schedule is currently simmering. Updates will appear here soon!
