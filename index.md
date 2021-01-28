@@ -23,4 +23,10 @@ Newcomers are always welcome at our events (though we encourage reaching out bef
 
 # Schedule
 
-The schedule is currently simmering. Updates will appear here soon!
+We're currently creating our schedule for this semester - add your availability at this link so we can find the best time for everyone:
+
+[When to Meet](https://www.when2meet.com/?10765438-5klQG)
+
+As for topics, you can share what you are interested in here:
+
+[Google Forms](https://forms.gle/T7Hk2Lxuq2mSxXZb8)
